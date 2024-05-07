@@ -1,7 +1,6 @@
 -  Hi, I’m THE-MARIAM
 -  I’m interested in Freelancing jobs.
 -  I’m currently learning PHP.
-- 
 - Reach me through gmail...(imariamis73@gmail.com)
 -  Pronouns: MA-REE-YUM
 - ⚡ Fun fact: I can do jobs that i never learned by learning about them in just 1 night.
